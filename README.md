@@ -2,7 +2,7 @@
 - 👀 I’m interested in php and python
 - 🌱 I’m currently learning cyber security
 - 💞️ I’m looking to collaborate on every purposefull project
-- 📫 How to reach me e-mail me [niyonkurugabriel144@gmail.com] or instagram [_m_a_v_i_n_]
+- 📫 How to reach me e-mail me [niyonkurugabriel144@gmail.com] or instagram [@dopemavin]
 - 😄 Pronouns: mavin
 - ⚡ Fun fact: music producer and mastering
 - 
